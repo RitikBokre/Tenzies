@@ -1,1 +1,1 @@
-Deployed Link : 
+Deployed Link : https://tenziesdicegameapk.netlify.app/
